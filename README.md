@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **furkankrdmr00@gmail.com**
 
-- 📄 Know about my experiences [https://medium.com/@furkankrdmr00]
+- 📄 Know about my experiences https://medium.com/@furkankrdmr00
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
