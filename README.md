@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Python**
 
-- 📝 I regularly write articles on [https://medium.com/@selim-asik](https://medium.com/@selim-asik)
+- 📝 I regularly write articles on [https://medium.com/@furkankrdmr00](https://medium.com/@furkankrdmr00)
 
 - 📫 How to reach me **furkankrdmr00@gmail.com**
 
