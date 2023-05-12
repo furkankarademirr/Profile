@@ -7,9 +7,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@selim-asik](https://medium.com/@selim-asik)
 
-- 💬 Ask me about **http://selimasik.com**
-
-- 📫 How to reach me **selim.asik@hotmail.com**
+- 📫 How to reach me **furkankrdmr00@gmail.com**
 
 - 📄 Know about my experiences [https://medium.com/@furkankrdmr00]
 
